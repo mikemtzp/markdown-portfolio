@@ -1,0 +1,8 @@
+- Making exercise
+- Reading non fiction books
+- Playing videogames
+- Watching movies
+- Playing the guitar
+- Singing
+- Sleep
+- Listen to music
