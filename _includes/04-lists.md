@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+- Making exercise
+- Reading non fiction books
+- Playing videogames
+- Watching movies
+- Playing the guitar
+- Singing
+- Sleep
+- Listen to music
